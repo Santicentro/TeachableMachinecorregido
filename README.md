@@ -1,0 +1,2 @@
+# TeachableMachinecorregido
+Repositorio Normal
